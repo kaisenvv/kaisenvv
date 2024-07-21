@@ -2,7 +2,7 @@
 
  dni **@drivernumber24** they're literally a justin bieber hater i love justin bieber. (not really) he/she prn
 
-` fandoms, tbhk . dw . mlp . gi . hsr . lc . mxtx . alsnt . hp
+` fandoms, **tbhk . dw . mlp . g**i . hsr . lc . mxtx . alsnt . hp
 <!---
 kaisenvv/kaisenvv is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
