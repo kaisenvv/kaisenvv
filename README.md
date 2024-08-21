@@ -1,8 +1,13 @@
-![](https://media.discordapp.net/attachments/1183522257566453833/1261243955568443423/paimon-s-paintings-set-30-12.png?ex=669e1df7&is=669ccc77&hm=c4197f34db1a1f36c076996d2ccff84cbf10e66c27d95d1b53730e5ee1cbdb15&=&format=webp&quality=lossless&width=240&height=240) feel free to wh*isp, boop, int, add,* cover, crown
+<p align="center">
+  <img src="https://i.pinimg.com/originals/10/fd/f3/10fdf360b07ccfe5037584e4bf94924f.png" />
 
- dni **@drivernumber24** they're literally a justin bieber hater i love justin bieber. (not really) he/she prn
 
-` fandoms, **tbhk . dw . mlp . g**i . hsr . lc . mxtx . alsnt . hp
+
+╰──╮ he/she prn  .   `   . . 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚠𝚑*𝚒𝚜𝚙, 𝚋𝚘𝚘𝚙, 𝚒𝚗𝚝, 𝚊𝚍𝚍,* 𝚌𝚘𝚟𝚎𝚛, 𝚌𝚛𝚘𝚠𝚗
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=77F739&width=435&lines=%22+bazinga+.+.+.)](https://git.io/typing-svg)
+</p>
+
+
 <!---
 kaisenvv/kaisenvv is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
